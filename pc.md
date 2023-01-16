@@ -18,6 +18,7 @@ Bestiarius is a male, blood hunter, variant human, on the taller side, and in hi
 * A Werebear Lycon. 
 ### Spells
 * Thunder rite
+* Beast form
 ### Weapons
 * Glaive
 * Claws
@@ -30,8 +31,10 @@ Farma is a male, cleric, variant human, average height, and about 40 years old.
 * Decided to become an adventurer to help more people than he could just working in a pharmacy.
 ### Spells
 * Cure Wounds
+* Bless
 * Toll the dead
 * Guiding Bolt
+* Spiritual Weapon
 ### Weapons
 * Mace
 

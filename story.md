@@ -36,7 +36,20 @@ heading over to the man.
 
 ---
 
-## Session Two
-Test
+## Session One Continued
+As we approach the man he asks us if we are with Valera and lets us know he is Virim. He tells us about a huge event,
+larger than the black carnival and other important events. It was a massive celebration he tells us. Then, the next day
+it was a horrific site as people are screaming and wailing and bodies becoming diseased. Afterwards the cultists showed
+up and started infecting more people. After a long rest we follow Virim to a man whole cover that he mentioned he saw
+the people that were being infected heading into. As we head down the sewer river we see a couple intakes that seem to
+be blocked off. We enter a large round room, the ceiling partially caved. Where the ceiling caved in there are few
+coffins. On two sides of the room there are pipes, one of them has **RATS**. We fill up the two tunnels and then find
+some trinkets in the coffins. As we make it further through the sewers we are ganked by the rats. M.I.A. hits a crazy
+30x collateral. We get overrun as the rats seem endless, so we make a break for it. We get blocked by two larger boss
+rats. As we prepare for death we get saved by a hooded man with gun hands. We make a jump for a chain the man climbed.
+The party talks to him for a while, he explains how a beast killed his rat king and is now producing toxic sludge.
+The sludge is causing the Weeping Pox, and he asks for our help to kill him. _**The fight was hard.**_</br>
+We see a piece of paper, in another room after the fight. When touched we see a black card, (i couldn't keep up).
 
 ---
+
