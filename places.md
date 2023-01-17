@@ -4,6 +4,10 @@
 ---
 
 ## Burach Empire
+### Sleepy Vale
+* Small town
+* Alera Valethorn lives here.
+* Mordecai lives here
 
 ###  Stehlenwald
 * Towards the southern in the Burach empire.

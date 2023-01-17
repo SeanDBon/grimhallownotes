@@ -18,3 +18,13 @@ A contact of Valera Valethorn who has gone missing while investigating Stehlenwa
 A rat man that saved the party in the sewer.
 * Been in the sewers for his whole life, 7 years.
 * Beast killed his rat king, and produced the toxic sludge that makes the weeping pox.
+
+## Alera Valethorn
+Sister of Valera. Second in line of the Ostoyan Empire.
+* Possibly being controlled. Sent some wierd letters to her sister (See "Investigate Valera's sister" mission).
+* Studying under Dr. Mordecai.
+
+## Dr. Mordecai
+Doctor in the town of Sleepy Vale.
+* Farma wants to meet up with to talk about the Weeping Pox.
+* Teaching Alera.

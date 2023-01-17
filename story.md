@@ -46,10 +46,26 @@ be blocked off. We enter a large round room, the ceiling partially caved. Where 
 coffins. On two sides of the room there are pipes, one of them has **RATS**. We fill up the two tunnels and then find
 some trinkets in the coffins. As we make it further through the sewers we are ganked by the rats. M.I.A. hits a crazy
 30x collateral. We get overrun as the rats seem endless, so we make a break for it. We get blocked by two larger boss
-rats. As we prepare for death we get saved by a hooded man with gun hands. We make a jump for a chain the man climbed.
-The party talks to him for a while, he explains how a beast killed his rat king and is now producing toxic sludge.
-The sludge is causing the Weeping Pox, and he asks for our help to kill him. _**The fight was hard.**_</br>
-We see a piece of paper, in another room after the fight. When touched we see a black card, (i couldn't keep up).
-
+rats. As we prepare for death we get saved by a hooded man with gun hands(maybe). We make a jump for a chain the man
+climbed. The party talks to him for a while, he explains how a beast killed his rat king and is now producing toxic
+sludge. The sludge is causing the Weeping Pox, and he asks for our help to kill him. _**The fight was hard.**_</br>
+We see a piece of paper, in another room after the fight. When touched we see a black card, we got a vision. It gave
+a pentagram on Bestiarius pointer finger.
 ---
 
+## Session Two
+After the encounter Vitir asks us to help unblock the sewers, he believes the water is no longer tainted now that the
+big guy was dead. The party, in bad shape, decide to go recoup first and takes a long rest. Vitir then pulls out an orb,
+and holds it in front of him. He pulls his hand away but the orb stays floating. He then claps and a large explosion is
+heard. It seems to have unblocked the passages and with a rush, the sewage starts coming out again. We ask him for some
+of his orbs and how to make them. We then ask about the disease and the weeping pox. M.I.A. does some pillaging. After
+we head back to Valera to tell her what we found out. We all get paid 250 gold for our troubles. She then tells us our
+next mission. She tells us about an expert in medicine that Farma asked about, and then asks if there is anything
+strange about some letters her sister sent. We do some shopping and then head out to Sleepy Vale. After a day and half
+of travel we get to a small mountain. As we climb the weather turns cold and snowy, odd for this time of year.
+We decide to hunker up until it passes. As we get camp setup we hear footsteps approaching. Three strong gladiator
+looking dudes approach us. They request the black card that Bestiarius took from the sewers quite forcefully.
+The biggest guy suggests a duel with Bestiarius, which he accepts. After a bit of back and forth the big guy goes wacko.
+He nearly splits Bestiarius in half. As he is about to pass out we all have a vision of him sitting on a throne above us.
+He comes back healed and then the fight really breaks out. It was hard fought, then they seemed to disappear as we are
+starting to win.
