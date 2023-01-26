@@ -15,10 +15,15 @@ The party has been asked to find Valera Valethorn missing contact and continue h
 The party has been asked by Valera Valethorn to investigate the Weeping Pox.
 * Possibly caused by the rat monster.
 * Possibly spread by the group of cultists we met in Stehlenwald.
+* Doesn't seem to spread in the blood.
+* A person in a coma didn't seem to get worse.
 
 ## Meet up with Doctor Mordecai
 Farma was asking to talk with a CDC doctor and Valera pointed us in the direction of one.
+* We find him in Sleepy Vale, a zesty man.
+* It seems people in this town have a memory issue. Maybe a curse.
 
 ## Investigate Valera's sister
 Valera's sister was sending some wierd letters about falling in love with a boy and running away. This is strange
 because her heart was already taken, and she can't imagine it being swayed.
+* The Doctor seems to have completely forgotten about her.

@@ -69,3 +69,16 @@ The biggest guy suggests a duel with Bestiarius, which he accepts. After a bit o
 He nearly splits Bestiarius in half. As he is about to pass out we all have a vision of him sitting on a throne above us.
 He comes back healed and then the fight really breaks out. It was hard fought, then they seemed to disappear as we are
 starting to win.
+
+## Session 3
+After the fight we find a piece of small green cloth from the large gladiator. It is the seal that was on his chest.
+It is a bucks head with a crown of thorns. After another day and half we arrive at Sleep Vale. We get some creepy vibes
+and the feeling of being watched in this town. As we open the door in the town to the doctors shop a smell of death
+comes pouring out. As we enter a zesty man behind a curtain welcomes us and ushers Farma behind the curtain. He seems
+to be forgetting about Alera like his memory was tampered with. I find a log book of other villagers remembering people
+specifically. We head to the town and get a room in the inn. Horus gets me high as we share a room. The other 4 that
+slept alone share a nightmare. Farma sees a creature climbing the roof after waking up and noticing the window was 
+unlocked. The next day Horus follows the footsteps and finds a path that leads into the forest. We find a tree where we
+believe the monster is. We start scaling the tree, he jumps down and attacks us. The fight was hard. After he was
+defeated we get our memories back. On our way back to town we hear a commotion and a bunch of people looking for their
+kids. Then, from the top of the hill, we hear a shout; "I MEMBER"!
