@@ -82,3 +82,14 @@ unlocked. The next day Horus follows the footsteps and finds a path that leads i
 believe the monster is. We start scaling the tree, he jumps down and attacks us. The fight was hard. After he was
 defeated we get our memories back. On our way back to town we hear a commotion and a bunch of people looking for their
 kids. Then, from the top of the hill, we hear a shout; "I MEMBER"!
+
+## Session 4
+We head back to the doctors house carrying the dream whisperer. We see a frantic doctor yelling for Alera. He has a
+minor freak out when he sees the monster and asks us to bring it in to dissect it. On the belly of the monster there is
+a seal. It looks like a circle with a semicircle cut out of it, inside the circle is a bull-man with a hammer. It is the
+seal of tormoch, the arch demon of wrath. We take a short rest, during that time the monster hunter disappeared. After,
+we head over to where Alera was seen last, a pasture of moon lilies. Over there we find Horus passed out from smoking
+the moon lilies. Zeppa finds what looks like a path of something being dragged. We follow the path with Bestiarius nose
+leading the way. We find a hastily built camp, filled with Cultists that Zeppa tells us about. We get into a wierd 
+scuffle. There were a lot of axes, even a sentient axe. We won. We loot and then have to scoot since a large flesh golem
+starts coming our way.

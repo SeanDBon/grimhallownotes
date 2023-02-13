@@ -28,3 +28,4 @@ Sister of Valera. Second in line of the Ostoyan Empire.
 Doctor in the town of Sleepy Vale.
 * Farma wants to meet up with to talk about the Weeping Pox.
 * Teaching Alera.
+* Memory was tampered with by the dream whisperer.

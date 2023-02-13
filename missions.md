@@ -27,3 +27,4 @@ Farma was asking to talk with a CDC doctor and Valera pointed us in the directio
 Valera's sister was sending some wierd letters about falling in love with a boy and running away. This is strange
 because her heart was already taken, and she can't imagine it being swayed.
 * The Doctor seems to have completely forgotten about her.
+* We fought a monster and afterwards the town folk and the doctor get their memory back.

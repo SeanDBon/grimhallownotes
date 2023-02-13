@@ -7,7 +7,8 @@
 ### Sleepy Vale
 * Small town
 * Alera Valethorn lives here.
-* Mordecai lives here
+* Mordecai lives here.
+* Was being messed with by the dream whisperer.
 
 ###  Stehlenwald
 * Towards the southern in the Burach empire.
