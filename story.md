@@ -93,3 +93,28 @@ the moon lilies. Zeppa finds what looks like a path of something being dragged. 
 leading the way. We find a hastily built camp, filled with Cultists that Zeppa tells us about. We get into a wierd 
 scuffle. There were a lot of axes, even a sentient axe. We won. We loot and then have to scoot since a large flesh golem
 starts coming our way.
+
+## Session 5
+I wasn't here sadly.
+
+## Session 6
+There were geese, lots of geese, some with many heads. Then a bone man showed up, bought bones, made us helmets.
+
+## Session 7
+Sleep,
+flirting,
+fight,
+grapple,
+shoot my way out,
+huge nuke,
+huge res,
+huge lighting,
+huge res,
+The best ending to a friend ever possible,
+he left bag of drugs,
+walking back eerily quiet,
+able to see stars,
+see huge pile of dead bodies with demon like creature on top, purple eyes,
+says he is going to end the world,
+huge deer demon in sky,
+it is the great beast,
